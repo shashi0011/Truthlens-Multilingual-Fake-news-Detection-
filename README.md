@@ -267,7 +267,7 @@ This project is for **academic and research purposes only**.
 
 For queries:
 
-Email: [your_email@example.com](kantshashi3898@gmail.com)
+Email: [kantshashi3898@gmail.com](kantshashi3898@gmail.com)
 
 ---
 
